@@ -13,6 +13,6 @@ To get your full rewards : https://alltheblocks.net/nft-recovery
 Explorer : https://alltheblocks.net/goldcoin
 
 http://goldcoin-network.net
-
+kk
 Join our community ! https://discord.gg/Kr4ZE8ym95
 
